@@ -1,0 +1,1 @@
+# prepara-o-para-valia-o
